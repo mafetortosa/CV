@@ -10,3 +10,7 @@ March 2017- November 2018
 ### Digital Career Institute
 Jan 2019- Current
 .......
+## Hobbies
+Cake baking <br>
+Jewelry Design <br>
+Cinema <br>
