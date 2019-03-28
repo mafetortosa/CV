@@ -4,5 +4,9 @@ Berlin, Germany <br>
 Phone number: +4915203902...<br><br>
 # Working Experience
 ### Team leader Spanish Market/ Arvato Bertelsmann <br>
-March 2017- November 2018
+March 2017- November 2018 
 ......
+## Education
+### Digital Career Institute
+Jan 2019- Current
+.......
